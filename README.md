@@ -36,7 +36,7 @@ I actively contribute to open-source projects and collaborate with other develop
 ## Contact Me
 
 - LinkedIn: 
-- Email: nurulhasssan1019.com
+- Email: nurulhasssan1019.@gmailcom
 
 Feel free to reach out if you have any questions or would like to collaborate on a project!
 
